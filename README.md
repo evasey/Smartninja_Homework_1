@@ -1,1 +1,1 @@
-# Smartninja_Homework_1_1
+# Smartninja_Homework_1
